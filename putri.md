@@ -1,0 +1,1 @@
+Bernanda Fredya Putri
